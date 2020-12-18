@@ -1,0 +1,2 @@
+<p>L'Article L6325-7 du Code du travail stipule que le contrat de professionnalisation à durée déterminée peut être renouvelé une fois si le bénéficiaire n'a pu atteindre les objectifs de qualification fixés.
+L'entreprise UNIVERS HIGH TECH D'Agadir vous informe la renouvelement de votre contrat.</p>
